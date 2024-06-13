@@ -10,6 +10,8 @@ __•soy amante de la musica y me gusta mucho el artista argentino Dillom.__
 
 __•Soy muy fan de la saga de videojuegos Metal Gear Solid.__
 
+## expectativas ##
+
 __•Mis expectativas son aprobar todas mis materias para diciembre para poder estudiar mas tranquilo.__
 
 Entre aqui para ver un [video epico](https://youtu.be/BEwzyezot3s?si=y01f0JNJE4mzVWZO).
