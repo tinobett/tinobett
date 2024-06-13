@@ -1,6 +1,7 @@
 ## Mi presentacion😈😈😈 ##
 __Hola soy Valentino Bettinelli, soy de Salta Argentina y asisto al colegio de la divina misericordia__.
 
+## que me gusta ##
 __Me gusta mucho la anatomia humana__
 
 __•pienso estudiar la carrera de medicina para mi futuro.__
